@@ -6,5 +6,4 @@
 ser-attachments/assets/d2fcb948-4834-48f7-adec-1dd7253f33f2)
 ![Screenshot 2024-10-31 145158](https://github.com/user-attachments/assets/c7bf16a0-bebb-4e65-9d1a-d6e973c256fb)
 ![Screenshot 2024-10-31 145557](https://github.com/user-attachments/assets/52f66d66-0d14-4bc1-a7fc-8aa50d07f30f)
-![Screenshot 2024-10-31 145409](https://github.com/user-attachments/assets/eaafb2b1-bf45-41aa-99ff-fc8dc2c03365)
 ![Screenshot 2024-10-31 145146](https://github.com/user-attachments/assets/adf7ea46-bc06-4c33-9833-89913ed4be62)
